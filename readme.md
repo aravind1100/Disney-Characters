@@ -1,1 +1,1 @@
-This page is shows the characters of toon disney with a image.
+This page shows the characters of toon disney with their images.
